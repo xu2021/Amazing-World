@@ -1,3 +1,3 @@
 # Amazing-World
-Nothing about truth
+Nothing about truth /n
 i am Xu
